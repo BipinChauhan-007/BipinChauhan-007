@@ -21,7 +21,7 @@
 
 - 💬 Ask me about **web dev , Android , python**
 
-- 📫 How to reach me **bipinbiharichauhan52@gmail.com**
+- 📫 How to reach me **bipinbiharichauhan67@gmail.com**
 
 - ⚡ Fun fact **Coding Bugs were NOT named after an actual bug.**
 
